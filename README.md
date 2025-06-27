@@ -1,0 +1,1 @@
+# Drukarkaka-kwntowa-wysokich-cz-stowliwo-ci.-
